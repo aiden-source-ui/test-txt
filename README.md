@@ -1,1 +1,1 @@
-Update will be probably soon
+Update https://www.icloud.com/shortcuts/608221bed7b4416d8991f2550151a4c9
